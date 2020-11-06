@@ -7,7 +7,7 @@ ___________________________________________________________________
 ## Caged Bird
 ### By Maya Angelou
 
-A free bird leaps on the back of the wind 
+A free bird leaps on the back of the wind  
 and floats downstream till the current ends 
 and dips his wing in the orange sun rays 
 and dares to claim the sky.
