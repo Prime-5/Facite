@@ -1,6 +1,6 @@
 This is a good place to start. This poem by Maya Angelou feels intensely personal (and if you read about her, you will realise that it is kind of autobiographical. In fact, the title of her autobiography is "I know why the Caged Bird Sings"). 
 
-For me, this poem feels personal because I remember that there was a time in my teenage when I changed parts of me (that I was alright with) because they were not good enough for the ones around me. As someone who now takes pride in being himself, the obvious (and perhaps cliche) origin story is that I used to walk around with my back hunched just because people didn't like the sight of an upright me, and if you too, curious reader, have had the unfortunate experience of "throwing away parts of yourself that no one appreciates", then I think you too will find this poem relatable.
+For me, this poem feels personal because I remember that there was a time in my teenage when I changed certain parts of my personlity (not because I wanted to, but) because they were not good enough for the ones around me. As someone who now takes pride in being himself, the obvious (and perhaps cliche) origin story is that I used to walk around with my back hunched just because people didn't like the sight of an upright me, and if you too, curious reader, have had the unfortunate experience of "throwing away parts of yourself that no one appreciates", then I think you too will find this poem relatable.
 
 ___________________________________________________________________
 
