@@ -1,11 +1,10 @@
 I'll be honest, there are times when even the concept of "there is a light at the end of the tunnel" seems streatched.
-An illusion, nothing more than a carefully crafter mirage. 
+An illusion, nothing more than a carefully crafted mirage. 
 
 "Matches" is one of those pieces that accepts this. It accepts how broken our would can sometimes feel, and does something truly remarkable with that acknowledgement.
 And it's worth noting that Guante's raw and authentic delivery makes the poem much more powerful. Thanks Button Poetry for introducing me to his spoken word poetry pieces: https://youtu.be/mIuCNwpfA-U
 
-I'll add the last verses because those are the ones that do the magic for me
-Because it's not the light at the end of the tunnel that makes people walk through it, it's the light in them.
+I'll add the last verses because those are the ones that do the magic for me.
 
 
 _______________________________________________
@@ -36,6 +35,8 @@ _______________________________________________
 
 
 No copyright infringement intended. All rights to the original writer (Guante).
+
+And perhaps it is worth remembering that it's not the light at the end of the tunnel that makes people walk through it, but the light in them.
 
 P.S: On a side note, I like how the introduction goes "The reason that I'm not a nihilist, is some day I wanna live like in Star Trek".
 I find it relatable that sometimes we don't accept an ideology just because it goes against the most foundational of our hopes. And what is hope if not the very fabric of our existence?
